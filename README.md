@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning in marketing sector 
 - 💞️ I’m looking to collaborate on my insta acc 
 - 📫 How to reach me through my instgram @officialananyaa
-- 😄 Pronouns:
-- ⚡ Fun fact: ...
+- 😄 Pronouns: boss 
+- ⚡ Fun fact: learn earn
 
 <!---
 officialananyaa/officialananyaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
